@@ -1,4 +1,4 @@
-# Here are some of my favorite musical artists#
+# Here are some of my favorite musical artists
 
 ### - Mac Miller
 ### - Doja Cat
